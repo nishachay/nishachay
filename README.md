@@ -1,1 +1,1 @@
-i like 0s, 1s, and what they make possible.
+i like 0s and 1s, and what they make possible.
